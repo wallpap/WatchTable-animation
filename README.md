@@ -43,7 +43,7 @@
 
   - ### 魔法少女☆伊莉雅 (~~*你甚至可以在魔伊里看到伊莉雅*~~)
     1. Fate / kaleid liner 魔法少女☆伊莉雅
-    2. 第二季ate / kaleid liner 魔法少女☆伊莉雅 2wei第三季
+    2. Fate / kaleid liner 魔法少女☆伊莉雅 2wei第三季
     3. Fate / kaleid liner 魔法少女☆伊莉雅 2wei Herz!
     4. Fate / kaleid liner 魔法少女☆伊莉雅 3rei!!
     - [OVA] Fate/kaleid liner 魔法少女☆伊莉雅 Prisma☆Phantasm
